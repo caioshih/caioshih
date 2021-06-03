@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @caioshih .. so if you don't know me, I'm a brazilian student, my instagram account is @ca.ioooo 
+- 👋 Hi, I’m @caioshih .. so if you don't know me, I'm a brazilian student
 - 👀 I’m interested in art and everything about this universe
 - 🌱 I’m currently learning desing and, of couse, programmer
 - 💞️ I’m looking to collaborate on my envoriment blog
